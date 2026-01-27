@@ -1,11 +1,11 @@
 ## Temporary Phone Number UK for Online SMS
 
-[**Temporary Phone Number UK**](https://dub.sh/temp-number-uk)
+[**Temporary Phone Number UK**](https://freereceivesms.top/)
 
 A **temporary phone number UK** allows you to receive SMS messages online using a disposable United Kingdom phone number. This service is ideal for online registrations, account verification, and receiving OTP codes without using your personal UK number.
 
 All messages are delivered directly in your browser — no SIM card, no mobile apps, and no registration required.
-[![Temporary Phone Number UK](https://github.com/user-attachments/assets/ba79258b-6f5e-486c-b39b-c26a3b65069f)](https://dub.sh/temp-number-uk)
+[![Temporary Phone Number UK](https://github.com/user-attachments/assets/ba79258b-6f5e-486c-b39b-c26a3b65069f)](https://freereceivesms.top/)
 
 ---
 
